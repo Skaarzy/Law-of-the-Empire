@@ -1,0 +1,2 @@
+Usage: The Strongest rarely unleash their full power or realms in the mortal world, preserving the balance and preventing devastation.
+**Meditation:** When increasing their qi, The Strongest retreat into their realms for extended training, where time flows differently a hour in the domain is a day in the mortal realm so sometime its called seclusion. Each Mind Domain reflects the user’s spirit, experiences, and martial path. To enter one is to face the purest form of their power.

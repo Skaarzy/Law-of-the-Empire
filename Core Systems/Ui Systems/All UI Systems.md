@@ -1,0 +1,15 @@
+- [[Inventory UI]]
+- [[Equipment Character UI]]
+- Meridian Cultivation UI (includes technique upgrading + character stats)
+- Skills Techniques UI (book/scroll for button assignments)
+- [[Dye Customization UI]] (at dye stores)
+- Blacksmith Crafting UI (buy/sell/craft)
+- Food Tavern UI (meals, drinks, maybe room rental)
+- Guild UI (sect/clan services and interactions)
+- Dye Store UI (armor appearance changes)
+- Beggar Information UI (secrets, unique quests, province info)
+- **Map Journal UI** (world navigation + quest tracking combined)
+- Combat UI
+- Dialogue Choice UI
+- Main Menu Pause UI
+- Settings Options UI
