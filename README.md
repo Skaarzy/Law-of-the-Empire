@@ -1,1 +1,1 @@
-Law Of The Empire
+Law Of The Empire, a story for a murim game that i am creating, which is very much a ongoing project where things are cosntantly changing with me wrting the story, desings and visual ideas in obsidian.
