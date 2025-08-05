@@ -1,0 +1,9 @@
+Master Jeon-hwa (전화)— The Resolute Deity of War, Peace, and Judgment
+
+Master Jeon-hwa embodies the duality of conflict and harmony. Clad in armor that seamlessly blends martial robustness with serene elegance, his presence commands both respect and tranquility. His visage is often depicted as calm and composed, reflecting his role as a mediator between war and peace.
+As the arbiter of justice, Zhanhe oversees the balance between aggression and diplomacy. He guides warriors to fight with honor and leaders to seek peaceful resolutions. In times of turmoil, his counsel is sought to restore equilibrium, ensuring that neither chaos nor complacency prevails.He uses a heavenly drum as his primary weapon which he strikes with his palm its said the sound of it can break realty of realms and crack space and time.The scroll even though its a secondary weapon its more powerful than the drum , once he uses the scroll it means that he won, when he opens the scroll and say one of the 3 words which are war peace or judgment every word has its meaning war kill a person with the strength of every war every fought , peace protects or heals usual himself but can be used on others and can make his enemy stop and reconsider fighting him, judgment as its called judges the person he chooses if the person is evil it can bring them to their knees from the pressure and make them immobile and even stops them from breathing its like a arrest even though they don't breath or their heart doesn't beat it just means they are in a timeless loop like a prison in their own body 
+
+![[Master Zhanhe.jpg]]
+
+Human Form :
+![[Master Jeon-hwa (전화).jpg]]

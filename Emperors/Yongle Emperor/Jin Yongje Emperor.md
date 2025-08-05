@@ -1,0 +1,6 @@
+Jin Myeong-ho (진명호)
+Born: 1357 (When Jin Woo-jin was 33)  
+Ruled: 1398–1424 (Age 41 to 77)  
+Died: 1434 (Age 77)
+
+As his father sacrifices himself to protect the city his son Yongje becomes the new emperor in the middle of the eternal war without choice in the matter, living not in the palace which was now rumble but with the beggars and thief's, eating sleeping and fighting with them which thought him  how to survive without a guard or a army and he did no matter the cost .He immediately after the demon war before anyone started to rebuild gave the order to instead of rebuilding things as they were to take massive area of the city central and transform it into a fortress for the emperor which would withstand any attack in the future and keep the emperor safe no matter the situation in which the emperor and his servants and guards will live making it the most secure place on earth but as fate would have he didn't get to see it finished his last decree ever was to name the fortress the forbidden city
