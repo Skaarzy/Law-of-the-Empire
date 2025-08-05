@@ -1,0 +1,7 @@
+Became immortal - 1298
+Died - unknown
+The Celestial Gaze Sect believes in observing and understanding the world from a detached perspective. They are masters of information gathering, analysis, and manipulation. Their symbol is a celestial eye, representing their ability to see all and know all, making them formidable strategists and manipulators.A man of quiet power and unwavering focus, Wei Jians piercing gaze seems to see through all facades. His mind, a labyrinth of strategy and observation, is always calculating the next move. His ability to read the world and its people with a detached yet keen awareness makes him a master manipulator and a strategist of the highest order. Wei Jian speaks little, but when he does, it is always with purpose, his words deliberate and full of weight. His sect’s members are adept at remaining unseen, but their presence is felt everywhere—manipulating events, gathering information, and ensuring their influence never fades.Highly evil and ruthless , strong yet wont strike until they know they will win. Became ortodox because of high wealth and high position of their master in empire court.The number of disciples are not wast yet all come from high or wealthy families, the sects martial arts in unknown to most.Sect is often called upon as spies for high-ranking individuals. Their reputation for discretion and precision makes them a favored choice among the empire’s elite.
+
+![[Wei Jian old face.jpg]]
+![[Wei Jian clothes.jpg]]
+![[Wei Jian hair and face.jpg]]

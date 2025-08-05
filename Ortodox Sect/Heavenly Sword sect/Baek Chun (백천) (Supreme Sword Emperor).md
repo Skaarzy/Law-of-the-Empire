@@ -1,0 +1,8 @@
+Baek Chun is the current master of the [[Heavenly Sword Sect]], a man of few words and immense presence. He is not a warrior known for flamboyant techniques or theatrical duels, but for absolute control—of his blade, his thoughts, and his sect.
+He wields the **Immortal Blade**, a wide, ancient sword so heavy that few can even lift it made out of Rhenium. Yet in his hands, it moves as if weightless. His style is unhurried and precise; every movement serves a purpose but has a fury to it that is unmatched. He wastes no motion, speaks no unnecessary words, and shows no emotion in battle. Where others flare with energy,Baek Chun is quiet and inevitable—like a storm that does not roar but simply arrives.
+His reputation is built on calm judgment and deep discipline. He teaches that the sword is a reflection of the self: if your mind is chaotic, your blade will be crude. His students are trained not only in martial arts but in stillness, patience, and moral clarity. He does not believe in seeking conflict, but he does not shy from it either. When he draws his blade, it is never without cause—and never without result.
+Though he is the third in the line of sect masters, many consider him the most complete. He has maintained peace with other sects without bowing, defeated assassins without lifting his arms, and solved internal sect disputes with a single look.
+In the martial world, his name is rarely spoken lightly. Not because he is feared like a tyrant, but because he is respected like a mountain—quiet, unmoving, and always watching.
+![[Li Zhen.jpg]]
+WEAPON HOLSTER 
+![[Li Zhen WEAPON HOLSTER.jpg]]
